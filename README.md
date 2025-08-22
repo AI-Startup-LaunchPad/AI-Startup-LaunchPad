@@ -41,7 +41,7 @@ Redefining possibilities for solo leaders by making advanced business leadership
 
 ### 🎯 Ready to Scale Your Startup?
 
-**Get the Solo Founder's AI Playbook** and discover the frameworks that have driven 75%+ growth for founders worldwide. Visit [aitransformationlaunchpad.com](https://aitransformationlaunchpad.com/) to:
+**Get the Solo Founder's AI Playbook** and discover the frameworks that have driven 75%+ growth for founders worldwide. Visit [AI Startup Launchpad](https://aistartuplaunchpad.com/) to:
 
 ✅ Access proven market leadership strategies  
 ✅ Download AI-powered business tools  
