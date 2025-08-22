@@ -34,7 +34,7 @@ Redefining possibilities for solo leaders by making advanced business leadership
 - **Successfully exited** multiple startup ventures
 
 ### 🌐 Let's Connect
-- 🌐 **Website**: [AI Transformation Launchpad](https://aitransformationlaunchpad.com/)
+- 🌐 **Website**: [AI Startup Launchpad](https://aistartuplaunchpad.com/)
 - 💼 **LinkedIn**: [in/mikejsullivan](https://www.linkedin.com/in/mikejsullivan/)
 - 📧 **Email**: Connect through my website
 - 📚 **Solo Founder's AI Playbook**: Available on my platform
